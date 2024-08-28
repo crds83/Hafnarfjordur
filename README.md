@@ -1,4 +1,1 @@
 # Hafnarfjordur
-# Hafnarfjordur
-# Hafnarfjordur
-# Hafnarfjordur
